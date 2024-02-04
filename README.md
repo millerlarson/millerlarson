@@ -1,4 +1,4 @@
-# 👋, Hello! I'm Miller Larson
+# Hello!  👋  I'm Miller Larson
 
 ## General generalist, lover of knowledge and technology advocate
 
